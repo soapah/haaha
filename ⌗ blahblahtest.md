@@ -7,6 +7,8 @@
        aaaaahhafdfdf 
     meow   meow? 
      
-  ![IMG_9970](https://github.com/user-attachments/assets/37484c3c-c732-4689-931c-7b692abde59a)
+  <img width="108" height="108" alt="IMG_9989" src="https://github.com/user-attachments/assets/7bd6e250-0552-4285-8339-b39e0445a944" />
+
+
 
        
